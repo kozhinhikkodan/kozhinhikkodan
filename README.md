@@ -1,4 +1,4 @@
-### Hi there, I am Mohammed Salih Kozhinhikkodan [website] 👋
+### Hi there, I am Mohammed Salih Kozhinhikkodan  👋
 
 
 
